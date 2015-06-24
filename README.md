@@ -12,5 +12,6 @@ Unlimited players, unlimited rounds, cool celebrations for the winner,
 eternal shame for the last placed guy (which was often me). 
 
 Enjoy it if you hate keeping score. :)
+(hey bebs, ily)
 
 -PS: it even keeps the same players if you want to play again. +2 brownie points.
